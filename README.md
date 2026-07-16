@@ -8,4 +8,3 @@ Sometimes I'm irritable and you might not like me, So please stay away from me a
 # FANDOM
 > I'm into a few fandoms — ORV, The Husky and His White Cat Shizun, GI & AOV. Feel free to drop hints or just interact! ( ﾟ∀ﾟ)
 # Let's get to know each other. We can cosplay skins together!:3
-![Banner](https://pin.it/6NcQ5MFos)
