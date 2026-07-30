@@ -1,4 +1,4 @@
-# I entered the wrong old atabook account and it's gone. ARGHH, I'M SO SORRY! 
+*ੈ✩‧₊˚ ୨୧ ⋆｡˚ ✧ ⋆｡˚ ୨୧ ˚₊‧✩ੈ*
 # CALL ME NOX
 Behave yourself, I'm easygoing, but please don't joke around too much!
 
@@ -8,6 +8,14 @@ Sometimes I'm irritable and you might not like me, So please stay away from me a
 
 If there's anything bothering you about me, please let me know so I can improve! 
 
+☾ ⋆⁺₊✧ ——— ✧₊⁺⋆ ☽
+
 # FANDOM
+ 
 > I'm into a few fandoms — ORV, The Husky and His White Cat Shizun, GI & AOV. Feel free to drop hints or just interact! ( ﾟ∀ﾟ)
+
+> I usually read action stories.  If we share similar interests, let's meet!
+
+──── ⋆｡°✩ 𖤐 ✩°｡⋆ ────
+
 # Let's get to know each other. We can cosplay skins together!:3
