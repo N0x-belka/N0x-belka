@@ -1,4 +1,5 @@
 *ੈ✩‧₊˚ ୨୧ ⋆｡˚ ✧ ⋆｡˚ ୨୧ ˚₊‧✩ੈ*
+૮₍˶ᵔ ᵕ ᵔ˶₎ა ﾉﾉ
 # CALL ME NOX
 Behave yourself, I'm easygoing, but please don't joke around too much!
 
