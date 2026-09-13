@@ -7,8 +7,9 @@
 </p>
 
  ✧ <a href="https://nox.atabook.org/">
-  <u><font color="#FFD08F">ᴀᴛᴀ ʙᴏᴏᴋ</font></u>
-</a>  ✧
+  <u><font color="#FFD08F">𝙰𝚃𝙰 𝙱𝙾𝙾𝙺</font></u>
+</a>
+  ✧
 
 
 > I'm into a few fandoms — ORV, The Husky and His White Cat Shizun, GI & AOV. Feel free to drop hints or just interact!
