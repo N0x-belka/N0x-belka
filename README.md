@@ -1,5 +1,3 @@
-*ੈ✩‧₊˚ ୨୧ ⋆｡˚ ✧  ⋆｡˚ ୨୧  ˚₊‧✩ੈ*
-
 ૮₍˶ᵔ ᵕ ᵔ˶₎ა ﾉﾉ‧✩ੈ
 [![I love Kimdokja](https://readme-typing-svg.demolab.com?font=Arial&size=24&duration=1&pause=1000&color=9CD5DB&center=false&vCenter=true&width=250&lines=I+love+Kimdokja)](https://git.io/typing-svg)
 ┌───── ⋆⋅☆⋅⋆ ────────────────┐
