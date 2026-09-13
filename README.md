@@ -12,6 +12,7 @@
   ✧
 
 
-> I'm into a few fandoms — ORV, The Husky and His White Cat Shizun, GI & AOV. Feel free to drop hints or just interact!
+> I'm into a few fandoms — ORV, The Husky and His White Cat Shizun, GI & AOV. Ehm... Guilongchao? Feel free to drop hints or just interact!
+> 
 
 
