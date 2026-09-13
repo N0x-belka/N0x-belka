@@ -3,7 +3,7 @@
 
 
 <p align="center">
-  <img src="https://cdn.phototourl.com/member/2026-09-13-79bef79f-b5f7-479d-9b18-e9df4ec8821a.jpg" width="400">
+  <img src="https://cdn.phototourl.com/member/2026-09-13-c3484f07-89a3-4ff1-b0de-2900d7972551.jpg" width="400">
 </p>
 
  ✧ <a href="https://nox.atabook.org/">
