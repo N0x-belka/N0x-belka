@@ -1,22 +1,11 @@
-*ੈ✩‧₊˚ ୨୧ ⋆｡˚ ✧ ⋆｡˚ ୨୧ ˚₊‧✩ੈ*
-૮₍˶ᵔ ᵕ ᵔ˶₎ა ﾉﾉ
-# CALL ME NOX
-Behave yourself, I'm easygoing, but please don't joke around too much!
+*ੈ✩‧₊˚ ୨୧ ⋆｡˚ ✧ ⋆｡˚ ୨୧  ˚₊‧✩ੈ*
 
-(*￣∇￣)ノErmm, we can be friends. As friends, I won't mind your little mistakes <3 but please correct them.
+૮₍˶ᵔ ᵕ ᵔ˶₎ა ﾉﾉ‧✩ੈ
+[![I love Kimdokja](https://readme-typing-svg.demolab.com?font=Arial&size=24&duration=1&pause=1000&color=9CD5DB&center=false&vCenter=true&width=250&lines=I+love+Kimdokja)](https://git.io/typing-svg)
+┌───── ⋆⋅☆⋅⋆ ────────────────┐
 
-Sometimes I'm irritable and you might not like me, So please stay away from me at that time! (/´△`＼)
-
-If there's anything bothering you about me, please let me know so I can improve! 
+![image](https://cdn.phototourl.com/member/2026-09-13-a9bfc6f4-6995-49c1-8bb9-bae33aab44ce.jpg)  
+└───── ⋆⋅☆⋅⋆ ────────────────┘
 
 ☾ ⋆⁺₊✧ ——— ✧₊⁺⋆ ☽
-
-# FANDOM
- 
-> I'm into a few fandoms — ORV, The Husky and His White Cat Shizun, GI & AOV. Feel free to drop hints or just interact! ( ﾟ∀ﾟ)
-
-> I usually read action stories.  If we share similar interests, let's meet!
-
-──── ⋆｡°✩ 𖤐 ✩°｡⋆ ────
-
-# Let's get to know each other. We can cosplay skins together!:3
+ > I'm into a few fandoms — ORV, The Husky and His White Cat Shizun, GI & AOV. Feel free to drop hints or just interact!
