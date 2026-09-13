@@ -1,5 +1,5 @@
 
-[![I love Kimdokja](https://readme-typing-svg.demolab.com?font=Arial&size=24&duration=1&pause=1000&color=9CD5DB&center=false&vCenter=true&width=250&lines=I+love+Kimdokja)](https://git.io/typing-svg)
+[![𝙸 𝚕𝚘𝚟𝚎 𝙺𝚒𝚖𝚍𝚘𝚔𝚓𝚊](https://readme-typing-svg.demolab.com?font=Courier+Prime&size=24&duration=1&pause=1000&color=9CD5DB&center=false&vCenter=true&width=250&lines=𝙸+𝚕𝚘𝚟𝚎+𝙺𝚒𝚖𝚍𝚘𝚔𝚓𝚊)](https://git.io/typing-svg)
 
 
 <p align="center">
